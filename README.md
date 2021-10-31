@@ -1,16 +1,17 @@
-### Hi there 🤡
+### Hello 🤡
 
-<!--
-**Marcos7F/Marcos7F** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[<img src="https://thumbs.gfycat.com/EminentVainArgentinehornedfrog-size_restricted.gif">][video]
 
-Here are some ideas to get you started:
+- 🦐🏴‍☠️ I’m currently working on nothing👨‍💻
+- 🗿❗ I’m currently learning Git🐙
+- 👌😎 I am a pretty chill dude🧐
+- 🤟😔 I’m not currently looking for help,thanks🆘
+- 👊😈 Ask me about the preterito pluscuanperfecto💯
+- 🧠 🪂How to reach me: you can't im the highest 👆
+- 😩🤙Pronouns: je tu il nous vous ettes👨‍⚖️
+- 🐫💨💥Fun fact: there's no fact, go home😤
+- 😳🧶I can make some custy combos🎰
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+[video]:https://www.youtube.com/watch?v=ezpBzqrfyls
